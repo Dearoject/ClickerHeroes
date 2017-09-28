@@ -17,4 +17,4 @@ INFORMACIÓ
 ---
 No hi ha res de res comprat, només te els arxis que veia que podia obtenir sense voler ( suposem )
 + 355.5% DPS per arxius
-I tambe 170 de diners ( ja ens estudiarem com obtenir mes i mes diners de forma mes simple )
++ 170 de diners ( ja ens estudiarem com obtenir mes i mes diners de forma mes simple )
